@@ -3,12 +3,12 @@
 ***
 
 1. Star Knight
+1. The Incredible Petrified World
 1. Fateful Findings
 1. Battle for Beyond the Sun
 
 ## To watch:
 
-- The Incredible Petrified World
 - Queen of the Amazons
 - Moon of the Wolf
 - She Gods of Shark Reef
